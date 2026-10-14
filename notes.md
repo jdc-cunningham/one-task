@@ -1,3 +1,15 @@
+### 10/14/2026
+
+3:33 PM
+
+So I am still watching random YouTube videos although I try to keep it productive eg. about some programming language,
+a hobby, maybe some gameplay.
+
+I did stop scrolling through Reddit and Instagram so that's something. One YouTube video I watched gave me a glimpse
+into passion again the fun of making something. Even writing this in a terminal feels satisfying for some reason.
+
+---
+
 ### 10/13/2026
 
 6:46 PM
