@@ -15,3 +15,8 @@ I'm supposedly learning rust, why? It's hard... I want to commit to it and do it
 But also I like the idea of terminal-based apps that can run on any laptop...
 Which may be a stretch I think I had problems with the 353 based Acer netbooks I have.
 
+9:20 PM
+
+Damn I feel bored as shit right now... I have a YouTube video playing but I'm not really paying attention to it.
+But I'm not multi-tasking either so I'm just sitting here staring at the floor while this video plays.
+
