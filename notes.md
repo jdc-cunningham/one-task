@@ -20,3 +20,7 @@ Which may be a stretch I think I had problems with the 353 based Acer netbooks I
 Damn I feel bored as shit right now... I have a YouTube video playing but I'm not really paying attention to it.
 But I'm not multi-tasking either so I'm just sitting here staring at the floor while this video plays.
 
+11:45 PM
+
+Man this is tough... even with YouTube playing in the background I caan't handle this... I'm mentally burnt so I can't do anything.
+I'm kind of just waiting to fall asleep as I can't get into doing anything damn. What's bad is I would drink due to boredom.
