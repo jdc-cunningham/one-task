@@ -8,6 +8,11 @@ a hobby, maybe some gameplay.
 I did stop scrolling through Reddit and Instagram so that's something. One YouTube video I watched gave me a glimpse
 into passion again the fun of making something. Even writing this in a terminal feels satisfying for some reason.
 
+10:28 PM
+
+Still watching YT videos but I did write code today for the first time in a while, although I was just
+rehashing something I've done before
+
 ---
 
 ### 10/13/2026
