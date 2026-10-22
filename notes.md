@@ -6,6 +6,12 @@ Ugh... I'm broke again from going out
 
 I'm back to this again, still not being good, right now I'm kind of bored, doing random stuff
 
+8:29 PM
+
+What's bad is I have this overwhelming sense of boredom. I can't get into YT videos feels like I've watched them all.
+It probably is an alcohol thing. I'm gonna not drink until I'm moved into my new apartment as
+I don't trust my drunk self with money. Boredom and loneliness it's pretty bad.
+
 ---
 
 ### 10/15/2026
